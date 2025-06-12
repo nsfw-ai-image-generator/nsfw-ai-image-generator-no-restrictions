@@ -1,2 +1,4 @@
-# nsfw-ai-art-generator
-Create amazing uncensored ai art with this nsfw ai art generator. 
+# NSFW AI Image Generator No Restrictions
+
+* [Promptchan](https://nsfwgen.xyz/promptchan) - Unrestricted NSFW AI Image Generator 
+* [Pornworks](https://nsfwgen.xyz/pornworks) - Unrestricted NSFW AI Image Generator
